@@ -1,0 +1,7 @@
+Echa akcji
+Pomimo problemów zwi¹zanych z od³awianiem ptaków, rolnicy w regionie ponownie zwracali siê o pomoc wojskow¹ w latach 1934, 1943 i 1948. Ale rz¹d za ka¿dym razem odrzuca³ proœby osadników (w 1943 rolnicy domagali siê nawet lotniczego bombardowania stad emu). Zamiast tak radykalnych posuniêæ, spopularyzowano jednak system nagród, zainicjowany jeszcze w 1923. By³ on doœæ skutecznie kontynuowany, gdy¿ na przyk³ad tylko w okresie szeœciu miesiêcy w 1934 odnotowano 57 034 zg³oszeñ po nagrody za od³owione emu[12].
+
+Przez ca³y okres lat 30. i nieco póŸniej, prowadzono tak¿e ogradzanie terenów uprawnych, które sta³o siê popularnym sposobem utrzymywania emu z daleka od obszarów rolniczych (ograniczy³o to równie¿ nap³yw innych szkodników, takich jak dingo i króliki).
+
+Do grudnia 1932 po œwiecie roznios³a siê wiadomoœæ o tak zwanej „wojnie emu”. Niektórzy obroñcy przyrody protestowali przeciwko od³owowi, jako „eksterminacji rzadkiego emu”. Australijski ornitolog Dominic Serventy okreœli³ operacjê jako „próbê masowego zniszczenia ptaków”. Podsumowuj¹c odstrza³, Serventy skomentowa³ ironicznie ca³¹ operacjê w nastêpuj¹cy sposób:
+„Marzenia strzelców maszynowych, o strzelaniu ogniem ci¹g³ym do skoncentrowanych mas emu, wkrótce rozp³ynê³y siê. Dowództwo emu ewidentnie zleci³o taktykê partyzanck¹, a ich nieporêczna armia wkrótce podzieli³a siê na niezliczone ma³e formacje, które spowodowa³y, ¿e u¿ywany sprzêt wojskowy sta³ siê nieefektywny. Zak³opotane si³y zbrojne wycofa³y siê z pola walki po oko³o miesi¹cu.”[13]
