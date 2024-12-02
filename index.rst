@@ -9,15 +9,12 @@ Welcome to Emu's documentation!
 .. toctree::
    :maxdepth: 2
    :caption: Spis Treści:
-   Rozdzial1
-   Rozdzial2
-   Rozdzial3
+
+   rozdzial1
+   rozdzial2
+   rozdzial3
 
 
 
-Indices and tables
-==================
 
-* :ref:`genindex`
-* :ref:`modindex`
-* :ref:`search`
+
